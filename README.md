@@ -1,4 +1,8 @@
-# Approach to a Sick Patient
-Get early help with a deteriorating patient. Escalate to your registrar, consultant, ICU or activate a MET call. Commence simultaneous assessment and treatment.
-- Airway - check for patency, then for protection from aspiration. Simple airway manoeuvres: head tilt, chin lift, jaw thrust ± oro/nasopharngeal airway to re-open. Airawy problems usually indicate the need to call an arrest. A GCS ≤ 8 generally means the airway is no longer protected.
-- Breathing - check the respiratory rate, work of breathing & adequacy of respiration, i.e. oxygen saturation. Provide oxygen as required. Check trachea is midline & auscultate the chest for equal breath sounds & obvious abnormalities.
+# A vote for Randy is a vote for
+Some real and some outlandish promises:
+- Airtags on more ultrasounds
+- Allocation analytics
+- An invite to Farihah and Ramith's wedding
+- Your own custom name@hne.health email??? (seriously though message me and I can make this one happen)
+
+(and yes I did buy this domain when I came to Newcastle all those years ago)
